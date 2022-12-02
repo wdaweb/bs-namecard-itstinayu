@@ -1,0 +1,1 @@
+# bs-namecard-itstinayu
